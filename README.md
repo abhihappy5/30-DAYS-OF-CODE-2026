@@ -6,3 +6,6 @@
 [DAY 1]
 ![DAY 1](https://lh3.googleusercontent.com/d/1c8PQPpjsNZDwuKGDYGMX1T_f-M4lMa6k)
 ![DAY 1](https://lh3.googleusercontent.com/d/1w7i_17eMaWPCmYmj7Tna2Fs97WAfXWfb)
+
+[DAY 2]
+![DAY 2](https://lh3.googleusercontent.com/d/10fpKXnwILjh_0l9X4vrVGvpAhdaZA8Js)
